@@ -1,1 +1,1 @@
-https://muhammadkamil66.github.io/mentor-meetup-4/.
+https://ijunaidi.github.io/Quotes-app/
